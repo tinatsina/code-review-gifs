@@ -22,9 +22,16 @@
 
 ![Yes Yes Yes](https://media.giphy.com/media/2RGhmKXcl0ViM/giphy.gif)
 
-![]()
-![]()
-![]()
-![]()
-![]()
-![]()
+![Lets Do This Thing](https://media.giphy.com/media/8y8NVqFqhTQVa/giphy.gif)
+
+![Lets Go](https://media.giphy.com/media/QVs6OmwbbGvWPJJ75m/giphy.gif)
+
+![Come On](https://media.giphy.com/media/J4OGz6Qo2cyn15i9wF/giphy.gif)
+
+![Jimmy Fallon Lets Go](https://media.giphy.com/media/3r8tymrKqZHkeM9wxS/giphy.gif)
+
+![Sheldon Wooh](https://media.giphy.com/media/3ohryD06NMpRUCxsuQ/giphy.gif)
+
+![Simba Please](https://media.giphy.com/media/PK5CQPd6rCF3y/giphy.gif)
+
+![Scar Precisely](https://media.giphy.com/media/kfFhknV3Ztpq8/giphy.gif)
