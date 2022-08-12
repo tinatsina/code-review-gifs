@@ -35,3 +35,9 @@
 ![Simba Please](https://media.giphy.com/media/PK5CQPd6rCF3y/giphy.gif)
 
 ![Scar Precisely](https://media.giphy.com/media/kfFhknV3Ztpq8/giphy.gif)
+
+![So So Close](https://media.giphy.com/media/Jq824R93JsLwZCaiSL/giphy.gif)
+
+![This close close](https://media.giphy.com/media/z3piokwf0WPH81MOhu/giphy.gif)
+
+![Almost There](https://media.giphy.com/media/VlqzeaRnhCvPLfrSh6/giphy.gif)
